@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @udani
-- 👀 I’m pursuing a BA(Hons) degree in computer studies @ University of Kelaniya, Sri Lanka.
+- 👀 I’m pursuing a BA(Hons) degree in Computer Studies @ University of Kelaniya, Sri Lanka.
 - 📫 How to reach me on linked in as @udani705
 
 <!---
